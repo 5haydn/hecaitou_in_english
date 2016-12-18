@@ -6,13 +6,19 @@ When I was a child, I always met those I couldn't understand. Then I thought sin
 
 在我还是个孩子的时候，总会遇见许多我理解不了的事情。那时候我总天真的想，等我长成个大人了，问题自然就会迎刃而解。
 
-
+Partial of this thought is right. For example, "Why can't I eat the whole birthday cake, why I have to share with the family", and the questions like that. I didn't get the answer, till I grow up, I bought one by my salary, I eated the whole one by myself. When I started to feel acid in my hung, I got it. 
 
 这个想法部分是对的，比如说“为什么我不能一个人吃掉整只生日蛋糕，必须要和家人分享”一类的问题，等自己长大之后拿工资买一整只口服下去，等到开始吐酸水，也就悟了。
 
+Rest of the question was wrong, totally wrong. For questions  I didn't get answer as a child, I didn't get the answer as an adult. As the ages grew, the quesions with no answer appeared all the time, they were moving forward endlessly.
+
 其余的大部分都是错的，而且是大错特错。小时候不明白的事情，长大了也找不到答案。而且，随着年龄增长，无解的事情层出不穷，绵延向前根本没有尽头。
 
+if quesion could not be solved, you should ask. But whom? As a child, I thought everyonene is different. When I entered the adult's society, where everyone was wearing clothes, I found everrone had the same look, and everyone was confident. If you were in Beijing-like places, there were masters with anwers crowed in the street. Just after a afternoon team, you could get back home with a truck of aswers.
+
 有问题解决不了，那就应该去请教。可是，请教什么人呢？小时候看人，每一个都不同。一旦进入成人社会，大家穿上了衣服，每一个人看起来都差不多，而且同样自信。如果是在北京这样的地方，满街都是带着答案的大师，只要是一杯下午茶的时光，你就可以带着一皮卡答案回家。
+
+
 
 这里有一个非常奇妙的悖论：能给你答案的人，往往不经常谈论这种问题。可是如果他不经常跳出来言说，你又很难发现他的存在。很简单的例子，就是在网上看Blog，凡是那些写了许多关于UI设计方面文章的家伙，自己做出来的东西都一塌糊涂。凡是写了许多关于产品心得文章的家伙，自己造出来的产品都惨不忍睹。更不用说各种大谈特谈行业心得的家伙，一般下水创业之后铁定都是没顶的命。
 
