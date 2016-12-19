@@ -37,3 +37,7 @@ If his hands were with blood, that meaned he had known hope and disappointment, 
 The blood became black when the water went away. In Italian Cicilinic speaking, this was called Mafia.
 
 等这手上的血痕干了，就会慢慢变成黑色，在意大利语西西里的土话里，称之为：MAFIA。
+
+
+
+Haydn 2016-12-19
