@@ -16,7 +16,13 @@ Have  you felt any difference bwtween 2016?  Have you checked 《The astronut de
 
 This is the fifth year for my writing on WeChat public subscription. The keyboard has been changed, the computer has been changed, but I stoke the words one by one, with no assitant, with no team, all by myself. This is the forth year since I have written this new year toast searies. Suddenly, I find that everybody in the Wechat Friends' Timeline is writing this kind of essays, I doute that I am dancing in the square of the plazza dancing team, but I feel that I am the solo dancer.
 
+
+
+Last Year, I wrote a series:《A Guide To Write on WeChat Public sbuscription》、《A Guide To Write on WeChat Public sbuscription（Continue.）》、《A Guide To Write on WeChat Public sbuscription（Continue. Again）》. In the reviewing, this series is most valueble. They are fit in my oppinion perfectly: a method can be practice to testify immediatly.  In this way, it's not an end when finish reading, the reader can go to a practice to testify the methds and oppinion in the article. There are lots of situations when practicing, but my oppinion can be passed to others with nothing lost. This series, the new essays created after reading the series, the feelings of each authors in this progress, and the discussions and feedback to each other, together they compose as a whole product.
+
 去年，我写了一个系列：《[公众号创作指南](http://mp.weixin.qq.com/s?__biz=MjM5MjAzODU2MA==&mid=2652780084&idx=1&sn=3403f3230ab132b877591899223075f1&chksm=bd46fdfb8a3174edc19ab9009f8d251b5cd3df84ac6c1eaa789b1e8863946ec7cf88c61050a2&scene=21#wechat_redirect)》、《[公众号创作指南（续）](http://mp.weixin.qq.com/s?__biz=MjM5MjAzODU2MA==&mid=2652780090&idx=1&sn=240df11f2ef48aecbfd3c553063af3dd&chksm=bd46fdf58a3174e3d620c63005eb39b5c3177667fba1761ac544ff042853e2cdc370f7e2a92a&scene=21#wechat_redirect)》、《[公众号创作指南（再续）](http://mp.weixin.qq.com/s?__biz=MjM5MjAzODU2MA==&mid=2652780094&idx=1&sn=805201470764af66fe5e8835e9462d3c&chksm=bd46fdf18a3174e7ed5f7dec5fa55b18e3bba7299a7553b85d7e552e8be426c322c22d4dd86d&scene=21#wechat_redirect)》，现在回想起来，在去年我所写的文章里面，这个系列是最具价值的。它们完美地符合了我的观点：可以立即付诸实践加以验证的方法。这样文章不是读完就结束了，读者可以自行动手实践，并且验证其中的方法和观点是否正确。纵然在实践过程中会出现千奇百怪的状况，但是，我的想法以这种方式可以毫无遗漏地传递给其他人。通过这一系列文章，连带因为读了这些文章而新写就的文章，以及各个写作者在这个过程里的感触，彼此的讨论和反馈，共同形成了一个完整的作品。
+
+In my point of view, this is the study. Even it is just a cup, if you never make the mud prototype, feel the rotation in your hand, even never see others do this, you can't say you know cup. You just know some concept, some outside shape, color, material, function, you know nothing about the object of the thing.
 
 在我看来，这才是所谓的学习。哪怕是一个杯子，如果你没有亲手做过泥胚，感受过它在手中的转动，甚至都没有看过别人这样去做，你就不能说你知道杯子。你知道的仅只是一些概念，一些外形、颜色、材质、功能，你对事物的本体一无所知。
 
